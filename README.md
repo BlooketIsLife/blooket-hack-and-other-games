@@ -1,2 +1,2 @@
 # blooket-hack
-new
+new updates every day
